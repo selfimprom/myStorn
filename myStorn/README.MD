@@ -1,4 +1,0 @@
-#myStorn
-hello everyone
-!!!!!!!
-**********!
